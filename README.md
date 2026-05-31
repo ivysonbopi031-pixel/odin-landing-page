@@ -6,3 +6,4 @@ Image Credits:
 -Meerkat Image: Photo by Jos van Ouwerkerk from Pexels
 -Server Image: Photo by panumas nikhomkhai from Pexels
 -Landscape Image: Chait Goli from Pexels
+-Milky Way Galaxy Image: Photo by Manish Meena from Pexels
